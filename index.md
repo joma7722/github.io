@@ -38,3 +38,4 @@ Walter White antwortet:
 > I did it for me. I liked it. I was good at it. And... I was really... I was alive. 
 
 
+<img src="https://upload.wikimedia.org/wikipedia/en/thumb/6/65/Walter_White2.jpg/220px-Walter_White2.jpg" />
