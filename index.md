@@ -31,3 +31,10 @@ und dabei über Leichen geht.
 
 
 
+Beim letzten Treffen von Walter White mit seiner Frau wirft ihm diese vor, dass sie es 
+nicht mehr hören möchte, wenn er behaupte er habe das alles für seine Familie getan.
+Walter White antwortet:
+
+> I did it for me. I liked it. I was good at it. And... I was really... I was alive. 
+
+
