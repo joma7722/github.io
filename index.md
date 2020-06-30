@@ -20,4 +20,14 @@ darauf ist, unter dem Pseudonym "Heisenberg" das beste Methamphetamin weit und b
 und dabei über Leichen geht.
 
 
+## Charaktereigenschaften von Walter White alias "Heisenberg":
+* Familienmensch 
+* Ordentlich bis pedantisch
+* Gewissenhaft 
+* Tüchtig, Leistungsorientiert
+* Sorgt sich um Angehörige und Freunde 
+* Wenig Mitgefühl mit Fremden (nicht Angehörige oder Freunde)
+* Rational denkend, nicht gefühlsbetont 
+
+
 
